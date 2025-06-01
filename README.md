@@ -18,7 +18,7 @@ byi:
 
 - c+h friendly only if i recognize/know u or have you added on pt. if we havent talked, dont do it. 
 
-- it's extremely hard to get me upset/frustrated i'm honestly cool with anyone and everyone as long as you're chill. just don't be weird.
+- it's extremely hard to get me upset/frustrated in general i'm honestly cool with anyone and everyone. 
 
 dni:
   
