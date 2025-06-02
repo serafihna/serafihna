@@ -18,7 +18,7 @@ byi:
 
 - c+h friendly only to added people on friendslist or if ik/talk to you. 
 
-- it's extremely hard to get me upset/frustrated in general i'm honestly cool with anyone and everyone. 
+- it's extremely hard to get me upset/frustrated in general about anything, i'm honestly cool with anyone and everyone 🙏🏻
 
 dni:
   
