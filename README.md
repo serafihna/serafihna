@@ -6,7 +6,7 @@ byi:
 
 - feel free to call me swan or swanne! i go by she/her/hers. 
 
-- i'll talk as much as you will, i'll match the energy. (i mean that in a good way)
+- i'll talk as much as you will, i'll match the energy. (i mean that in a good way i promise)
 
 - usually afk so w2i is a must. 😅
 
@@ -16,9 +16,9 @@ byi:
 
 - i'd like to think i'm pretty easy to have a convo with. u can quite literally talk to me abt anything and i'll be happy to chat.
 
-- c+h friendly only to added people on friendslist or if ik/talk to you. 
+- c+h friendly only to added people on friendslist or if ik you/talk to you. 
 
-- it's extremely hard to get me upset/frustrated in general about anything, i'm honestly cool with anyone and everyone 🙏🏻
+- it's extremely hard to get me upset/frustrated in general about anything - i'm alot more chill than you may assume. i'm honestly cool with anyone and everyone, just wannt get along 🙏🏻
 
 dni:
   
