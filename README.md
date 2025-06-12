@@ -20,6 +20,8 @@ byi:
 
 - it's extremely hard to get me upset/frustrated in general about anything - i'm alot more chill than you may assume. i'm honestly cool with anyone and everyone, just wanna get along 🙏🏻
 
+- don't be weird and we'll be cool.
+
 dni:
   
 - basic dni criteria. minor x adult shippers, siblingxsibling shippers, zoos, yk the drill. i hide and block freely otherwise
