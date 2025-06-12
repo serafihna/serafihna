@@ -16,7 +16,7 @@ byi:
 
 - i'd like to think i'm pretty easy to have a convo with. u can quite literally talk to me abt anything and i'll be happy to chat.
 
-- c+h friendly only to added people on friendslist or if ik you/talk to you. 
+- c+h friendly only to added people on friendslist OR if i know you.
 
 - it's extremely hard to get me upset/frustrated in general about anything - i'm alot more chill than you may assume. i'm honestly cool with anyone and everyone, just wanna get along 🙏🏻
 
