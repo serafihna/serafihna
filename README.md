@@ -4,11 +4,11 @@ heyyy hi welcome to the most unaesthetic github you'll ever see
 
 byi:
 
-- feel free to call me swan or swanne! i go by she/her/hers. 
+- feel free to call me swan or swanne! she/her prns only.
 
-- i'll talk as much as you will, i'll match the energy. (i mean that in a good way i promise)
+- i'll talk as much as you will, i'll match the energy. (i mean that in a good way)
 
-- usually afk so w2i is a must. 😅
+- usually afk so whispering is a must. 😅
 
 - dont sexualize me as a person. 
 
@@ -20,10 +20,8 @@ byi:
 
 - it's extremely hard to get me upset/frustrated in general about anything - i'm alot more chill than you may assume. i'm honestly cool with anyone and everyone, just wanna get along 🙏🏻
 
-- don't be weird and we'll be cool.
-
 dni:
   
-- basic dni criteria. minor x adult shippers, siblingxsibling shippers, zoos, yk the drill. i hide and block freely otherwise
- 
+- basic dni criteria. minor x adult shippers, siblingxsibling shippers, zoos, yk the drill. i hide and block freely otherwise 
+
 - MINORS. gtho 
