@@ -4,7 +4,7 @@ heyyy hi welcome to the most unaesthetic github you'll ever see
 
 byi:
 
-- feel free to call me swan or swanne! she/her prns only.
+- feel free to call me swan or swanne! she/her prns.
 
 - i'll talk as much as you will, i'll match the energy. (i mean that in a good way)
 
@@ -16,7 +16,7 @@ byi:
 
 - i'd like to think i'm pretty easy to have a convo with. u can quite literally talk to me abt anything and i'll be happy to chat.
 
-- c+h friendly only to added people on friendslist OR if i know you.
+- c+h is allowed if i added on friendslist or if i recognize you.
 
 - it's extremely hard to get me upset/frustrated in general about anything - i'm alot more chill than you may assume. i'm honestly cool with anyone and everyone, just wanna get along 🙏🏻
 
