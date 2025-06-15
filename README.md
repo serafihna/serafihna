@@ -16,12 +16,10 @@ byi:
 
 - i'd like to think i'm pretty easy to have a convo with. u can quite literally talk to me abt anything and i'll be happy to chat.
 
-- c+h is allowed if i added on friendslist or if i recognize you.
+- c+h encouraged if i recognize you
 
 - it's extremely hard to get me upset/frustrated in general about anything - i'm alot more chill than you may assume. i'm honestly cool with anyone and everyone, just wanna get along 🙏🏻
-
-- dont assume i ship something based on who i sit as with friends.
-
+- 
 dni:
   
 - basic dni criteria. minor x adult shippers, siblingxsibling shippers, zoos, yk the drill. i hide and block freely otherwise 
